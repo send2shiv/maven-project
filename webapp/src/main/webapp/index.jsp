@@ -1,1 +1,1 @@
-Hello, Let's build a beautifull world together
+Hello, Let's build a beautifull world together for everyone
